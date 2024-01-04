@@ -1,8 +1,5 @@
 # Voyage en Polynésie
 
-|  toto  |  toto  |
-|:-:     |:-:     |
-|   col1 |  col2  |
 
 ## Jour 0: Le trajet allée
 
