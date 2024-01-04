@@ -157,7 +157,7 @@ Les dépenses:
 
 Retour en France, départ à 7h30
 Le transport: 
-L'hébergement:   s
+L'hébergement:   
 Les activités:   
 Les dépenses:   
 
