@@ -8,10 +8,12 @@ Long périple depuis Nice... plus de 24h de trajet, avec stop à Paris, Los Ange
 ## Jour 1: Arrivée à Faa'a (21/04/2024)
 
 Notre vol arrive tôt... 5h30   
-On loue un véhicule chez [Eco-Car](https://www.ecocar-tahiti.com/)   
+On loue un véhicule chez [Eco-Car](https://www.ecocar-tahiti.com/)   ou (https://www.tahiti-rent.com)
 Le transport: Voiture loc
 L'hébergement:   
-Les activités: Marché de Papeete (le dimanche matin avant 9h)
+Les activités: 
+ * Récup vehicule location 
+ * Marché de Papeete (le dimanche matin avant 9h)
 Les dépenses:   
 
 ## Jour 2: Tahiti - (22/04/2024)
@@ -27,16 +29,17 @@ Les dépenses:
 Découverte de l'ile ITI et NUI
 Le transport: Voiture 
 L'hébergement:   
-Les activités:   
+Les activités:   Cascades de Faarumai
 Les dépenses:   
 
 ## Jour 4: Moorea (24/04/2024)
 
 Visite ile
+Trajet bateau avec pack Famille A/R (https://www.aremiti.pf/packs-selection)
 Le transport: Bateau 
 L'hébergement:   
 Les activités:   
-Les dépenses:   
+Les dépenses:   bateau A/R ~ 150 €
 
 ## Jour 5: Moorea (25/24/2024)
 Le transport: 
