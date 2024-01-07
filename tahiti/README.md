@@ -2,7 +2,15 @@
 
 ## Notre plan de Vol avec Air Tahiti et un 'Pass Bora Tuamotu Light'
 
-![Plan de vol validé](:Validated_PDV.png)
+<img src="Validated_PDV.png" width="100" height="100">   
+
+Tarif: 205 200 XPF ( ~ 1 720 €) pour 2 adultes et un enfant de 8 ans
+
+## Argent
+
+Nous avons ouvert un compte [wise](https://www.wise.com) pour effectuer les virements vers un/des comptes Polynesiens.   
+Les frais appliqués sont faibles, et les transferts se font en Euro (SEPA COM Pacifique).   
+La banque qui recevra le virement appliquera des frais (min 2450 xpf pour la Socredo!).   
 
 ## Jour 0: Le trajet allée
 
@@ -65,14 +73,14 @@ Les dépenses:
 
 Depart de Moorea vers Huahine via Papeete (depart 10h05)
 Arrivée Huahine à 10h45
-![Alt text](PPT-HUH.png)
 
-Le transport:  Voiture + Bateau + Avion - 
+Le transport:  Voiture + Bateau + Vol VT310 - 
 L'hébergement:   
 Les activités:   
 Les dépenses:   
 
 ## Jour 8: Huahine (28/04/204)
+
 Le transport: 
 L'hébergement:   
 Les activités:   
@@ -87,9 +95,9 @@ Les dépenses:
 
 ## Jour 10: Raiatea (30/04/2024)
 
-Avion depart 7h40, arrivée 8h00
+Avion depart 7h40, arrivée 8h00 à Raiatea
 
-Le transport: 
+Le transport: Vol VT338
 L'hébergement:   
 Les activités:   
 Les dépenses:   
@@ -105,7 +113,7 @@ Les dépenses:
 
 Journéee sur RAIATEA puis soirée 
 Avion depart à 17h50 arrivée à 18h10 à BOB
-Le transport: 
+Le transport:  Vol VT468
 L'hébergement: BOB   
 Les activités:   
 Les dépenses:   
@@ -119,35 +127,35 @@ Les dépenses:
 
 ## Jour 14: Bora Bora / Tikehau (04/05/2024)
 
-Depart de BOB à 10h45 Arrivée à TIH 12h50
-Le transport: 
-L'hébergement:   
+Depart de BOB à 10h45 Arrivée à TIH 12h50 (Escale Technique Rangiroa)
+Le transport: Vol VT699
+L'hébergement: Chez Tahiariki, contacté par What's app +68 98 773 53 14   
 Les activités:   
 Les dépenses:   
 
 ## Jour 15: Tikehau (05/05/2024)
 Le transport: 
-L'hébergement:   
+L'hébergement: Chez Tahiariki   
 Les activités:   
 Les dépenses:   
 
 ## Jour 16: Tikehau (06/05/2024)
 Le transport: 
-L'hébergement:   
+L'hébergement: Chez Tahiariki   
 Les activités:   
 Les dépenses:   
 
 ## Jour 17: Tikehau (07/05/2024)
 
 Le transport: 
-L'hébergement:   
+L'hébergement: Chez Tahiariki   
 Les activités:   
 Les dépenses:   
 
 ## Jour 18: Tikehau Tahiti (08/05/2024)
 
-Vol de TIH à PPT
-Le transport: 
+Vol de TIH à 12h00 à PPT à 12h55
+Le transport: Vol VT653
 L'hébergement:   
 Les activités:   
 Les dépenses:   
