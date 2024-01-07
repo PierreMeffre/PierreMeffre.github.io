@@ -19,7 +19,7 @@ Long périple depuis Nice... plus de 24h de trajet, avec stop à Paris, Los Ange
 ## Jour 1: Arrivée à Faa'a (21/04/2024)
 
 Notre vol arrive tôt... 5h30   
-On loue un véhicule chez [Eco-Car](https://www.ecocar-tahiti.com/)   ou [Tahiti Rent](https://www.tahiti-rent.com)
+On loue un véhicule chez [Eco-Car](https://www.ecocar-tahiti.com/)  - 6 jours pour 264 €
 Le transport: Voiture loc
 L'hébergement: Demane faite à [Relais Fenua](www.relaisfenua.com)  
 Les activités: 
@@ -29,7 +29,7 @@ Les activités:
  * !petit bain dans le logon 
  * Repas dans un snack
  * Courses alimentaires
-Les dépenses:   
+Les dépenses:   Auto = 264 €
 
 ## Jour 2: Tahiti - (22/04/2024)
 
@@ -129,28 +129,28 @@ Les dépenses:
 
 Depart de BOB à 10h45 Arrivée à TIH 12h50 (Escale Technique Rangiroa)
 Le transport: Vol VT699
-L'hébergement: Chez Tahiariki, contacté par What's app +68 98 773 53 14   
+L'hébergement: Chez Tahiariki, contacté par What's app +68 98 773 53 14 pour 100 €/nuit (payé par virement).  
 Les activités:   
-Les dépenses:   
+Les dépenses: 100€     
 
 ## Jour 15: Tikehau (05/05/2024)
 Le transport: 
 L'hébergement: Chez Tahiariki   
 Les activités:   
-Les dépenses:   
+Les dépenses: 100 €   
 
 ## Jour 16: Tikehau (06/05/2024)
 Le transport: 
 L'hébergement: Chez Tahiariki   
 Les activités:   
-Les dépenses:   
+Les dépenses: 100 €   
 
 ## Jour 17: Tikehau (07/05/2024)
 
 Le transport: 
 L'hébergement: Chez Tahiariki   
 Les activités:   
-Les dépenses:   
+Les dépenses: 100 €   
 
 ## Jour 18: Tikehau Tahiti (08/05/2024)
 
