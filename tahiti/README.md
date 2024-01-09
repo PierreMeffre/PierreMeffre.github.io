@@ -21,7 +21,7 @@ Long périple depuis Nice... plus de 24h de trajet, avec stop à Paris, Los Ange
 Notre vol arrive tôt... 5h30   
 On loue un véhicule chez [Eco-Car](https://www.ecocar-tahiti.com/)  - 6 jours pour 264 €
 Le transport: Voiture loc
-L'hébergement: Demane faite à [Relais Fenua](www.relaisfenua.com)  
+L'hébergement:   U'upa Lodge - Alexis LEGER ( What's app + 689 89 57 48 27 )   10 000 xpf/nuit + 4 000 xpf M
 Les activités: 
  * Récup vehicule location 
  * Marché de Papeete (le dimanche matin avant 9h)
@@ -29,23 +29,23 @@ Les activités:
  * !petit bain dans le logon 
  * Repas dans un snack
  * Courses alimentaires
-Les dépenses:   Auto = 264 €
+Les dépenses:   Auto = 264 € + Hébergement 83 €   
 
 ## Jour 2: Tahiti - (22/04/2024)
 
 Découverte de l'ile ITI et NUI
 Le transport: Voiture 
-L'hébergement:   
-Les activités: Surf à Teahupoo, Mont Aorai
-Les dépenses:   
+L'hébergement: U'upa Lodge   
+Les activités: Surf à Teahupoo, Mont Aorai   
+Les dépenses:   Hébergement 83 €   
 
 ## Jour 3: Tahiti - (23/04/2024)
 
 Découverte de l'ile ITI et NUI
 Le transport: Voiture 
-L'hébergement:   
-Les activités:   Cascades de Faarumai
-Les dépenses:   
+L'hébergement: U'upa Lodge   
+Les activités: Cascades de Faarumai   
+Les dépenses:  Hébergement 83 € + Ménage 35 €   
 
 ## Jour 4: Moorea (24/04/2024)
 
@@ -175,9 +175,3 @@ Le transport:
 L'hébergement:   
 Les activités:   
 Les dépenses:   
-
-Vol Bora Bora vers Tikehau   
-![Alt text](BOB-TIH.png)
-
-Vol Tikehau vers Tahiti
-![Alt text](TIH-PPT.png)
