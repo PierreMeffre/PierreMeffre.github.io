@@ -52,22 +52,22 @@ Les dépenses:  Hébergement 83 € + Ménage 35 €
 Visite ile
 Trajet bateau avec pack Famille A/R (https://www.aremiti.pf/packs-selection)
 Le transport: Bateau 
-L'hébergement:   
+L'hébergement: SUNSETVIEW à Haapiti - Booking 364 € payable par virement ultérieurement (https://www.booking.com/hotel/pf/sunset-view-studio-private-beach-amazing-swim.fr.html)   
 Les activités:   
-Les dépenses:   bateau A/R ~ 150 €
+Les dépenses:   bateau A/R ~ 150 € + Hébergement 121 €
 
 ## Jour 5: Moorea (25/24/2024)
 Le transport: 
 L'hébergement:   
 Les activités:   
-Les dépenses:   
+Les dépenses: Hébergement 121 €   
 
 ## Jour 6: Moorea (26/04/2024)
 
 Le transport: 
 L'hébergement:   
 Les activités:   
-Les dépenses:   
+Les dépenses: Hébergement 121 €   
 
 ## Jour 7: Huahine (27/04/2024)
 
