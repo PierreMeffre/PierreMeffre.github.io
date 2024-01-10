@@ -88,90 +88,91 @@ Les dépenses:
 
 ## Jour 9: Huahine (29/04/2024)
 
-Le transport: 
+Le transport:    
 L'hébergement:   
 Les activités:   
 Les dépenses:   
 
 ## Jour 10: Raiatea (30/04/2024)
 
-Avion depart 7h40, arrivée 8h00 à Raiatea
-
-Le transport: Vol VT338
+Avion depart 7h40, arrivée 8h00 à Raiatea   
+Le transport: Vol VT338   
 L'hébergement:   
 Les activités:   
 Les dépenses:   
 
 ## Jour 11: Raiatea (01/05/2024)
 
-Le transport: 
+Le transport:    
 L'hébergement:   
 Les activités:   
 Les dépenses:   
 
 ## Jour 12: Raiatea Bora Bora (02/05/2024)
 
-Journéee sur RAIATEA puis soirée 
-Avion depart à 17h50 arrivée à 18h10 à BOB
-Le transport:  Vol VT468
+Journéee sur RAIATEA puis soirée    
+Avion depart à 17h50 arrivée à 18h10 à BOB    
+Le transport:  Vol VT468   
 L'hébergement: BOB   
 Les activités:   
 Les dépenses:   
 
 ## Jour 13: Bora Bora (03/05/2024)
 
-Le transport: 
+Le transport:    
 L'hébergement: BOB   
 Les activités:   
 Les dépenses:   
 
 ## Jour 14: Bora Bora / Tikehau (04/05/2024)
 
-Depart de BOB à 10h45 Arrivée à TIH 12h50 (Escale Technique Rangiroa)
-Le transport: Vol VT699
+Depart de BOB à 10h45 Arrivée à TIH 12h50 (Escale Technique Rangiroa)   
+Le transport: Vol VT699   
 L'hébergement: Chez Tahiariki, contacté par What's app +68 98 773 53 14 pour 100 €/nuit (payé par virement).  
 Les activités:   
 Les dépenses: 100€     
 
 ## Jour 15: Tikehau (05/05/2024)
-Le transport: 
+
+Le transport:    
 L'hébergement: Chez Tahiariki   
 Les activités:   
 Les dépenses: 100 €   
 
 ## Jour 16: Tikehau (06/05/2024)
-Le transport: 
+
+Le transport:   
 L'hébergement: Chez Tahiariki   
 Les activités:   
 Les dépenses: 100 €   
 
 ## Jour 17: Tikehau (07/05/2024)
 
-Le transport: 
+Le transport:   
 L'hébergement: Chez Tahiariki   
 Les activités:   
 Les dépenses: 100 €   
 
 ## Jour 18: Tikehau Tahiti (08/05/2024)
 
-Vol de TIH à 12h00 à PPT à 12h55
-Le transport: Vol VT653
+Vol de TIH à 12h00 à PPT à 12h55   
+Le transport: Vol VT653   
 L'hébergement:   
 Les activités:   
 Les dépenses:   
 
 ## Jour 19: Tahiti (09/05/2024)
 
-Cadeau au marché
-Le transport: 
+Cadeau au marché   
+Le transport:   
 L'hébergement:   
 Les activités:   
 Les dépenses:   
 
 ## Jour 20: FIN (10/05/2024)
 
-Retour en France, départ à 7h30
-Le transport: 
+Retour en France, départ à 7h30   
+Le transport:  
 L'hébergement:   
 Les activités:   
 Les dépenses:   
