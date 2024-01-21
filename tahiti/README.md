@@ -72,57 +72,63 @@ Trajet bateau avec pack Famille A/R [AREMITI](https://www.aremiti.pf/packs-selec
 ## Jour 7: Huahine (27/04/2024)
 
 Depart de Moorea vers Huahine via Papeete (depart 10h05)   
-Arrivée Huahine à 10h45   
+Arrivée Huahine à 10h45
+Logement Chez Guynette pension à Fare - chezguynettehuahine@gmail.com - 63 € pour 3 personnes / nuit. Arrhes 1 nuit.   
 
 **Le transport**:  Voiture + Bateau + Vol VT310 -    
-**L'hébergement**:    
+**L'hébergement**: Chez Guynette    
 **Les activités**:   
-**Les dépenses**:   
+**Les dépenses**: Hébergement 63 €   
 
 ## Jour 8: Huahine (28/04/204)
 
 **Le transport**:  
 **L'hébergement**:    
 **Les activités**:   
-**Les dépenses**:   
+**Les dépenses**: Hébergement 63 €   
 
 ## Jour 9: Huahine (29/04/2024)
 
 **Le transport**:    
 **L'hébergement**:   
 **Les activités**:   
-**Les dépenses**:   
+**Les dépenses**: Hébergement 63 €   
 
 ## Jour 10: Raiatea (30/04/2024)
 
-Avion depart 7h40, arrivée 8h00 à Raiatea   
+Avion depart 7h40, arrivée 8h00 à Raiatea
+Logement apprt à Uturoa - +68987286933  - via Booking - 225 € pour 2 nuits - ohanalocation@gmail.com - à regler par virement ou sur place
+Location voiture avec logement - 42 € par jour - Transferts aeroport compris
+
 **Le transport**: Vol VT338   
-**L'hébergement**:   
+**L'hébergement**: Ohana Location à Uturoa      
 **Les activités**:   
-**Les dépenses**:   
+**Les dépenses**: Hébergement 112.5 € + Loc voiture 42 €   
 
 ## Jour 11: Raiatea (01/05/2024)
 
 **Le transport**:    
-**L'hébergement**:   
+**L'hébergement**: Ohana Location à Uturoa   
 **Les activités**:   
-**Les dépenses**:   
+**Les dépenses**: Hébergement 112.5 €    
 
 ## Jour 12: Raiatea Bora Bora (02/05/2024)
 
 Journéee sur RAIATEA puis soirée    
-Avion depart à 17h50 arrivée à 18h10 à BOB    
+Avion depart à 17h50 arrivée à 18h10 à BOB
+Logement Sunset Hill Lodge - Appart Moana 3 - 367,50 € pour 2 nuits. - sunset.hill.lodge@mail.pf - Payé CB le 21/01   
+
 **Le transport**:  Vol VT468   
-**L'hébergement**: BOB   
+**L'hébergement**: Moana3 Sunset Hill Lodge   
 **Les activités**:   
-**Les dépenses**:   
+**Les dépenses**: Hébergement 183,75 €   
 
 ## Jour 13: Bora Bora (03/05/2024)
 
 **Le transport**:    
-**L'hébergement**: BOB   
+**L'hébergement**: Moana3 Sunset Hill Lodge
 **Les activités**:   
-**Les dépenses**:   
+**Les dépenses**:Hébergement 183,75 €   
 
 ## Jour 14: Bora Bora / Tikehau (04/05/2024)
 
@@ -130,28 +136,28 @@ Depart de BOB à 10h45 Arrivée à TIH 12h50 (Escale Technique Rangiroa)
 **Le transport**: Vol VT699   
 **L'hébergement**: Chez Tahiariki, contacté par What's app +68 98 773 53 14 pour 100 €/nuit (payé par virement).  
 **Les activités**:   
-**Les dépenses**: 100€     
+**Les dépenses**: Hébergement 100 €     
 
 ## Jour 15: Tikehau (05/05/2024)
 
 **Le transport**:    
 **L'hébergement**: Chez Tahiariki   
 **Les activités**:   
-**Les dépenses**: 100 €   
+**Les dépenses**: Hébergement 100 €
 
 ## Jour 16: Tikehau (06/05/2024)
 
 **Le transport**:   
 **L'hébergement**: Chez Tahiariki   
 **Les activités**:   
-**Les dépenses**: 100 €   
+**Les dépenses**: Hébergement 100 €   
 
 ## Jour 17: Tikehau (07/05/2024)
 
 **Le transport**:   
 **L'hébergement**: Chez Tahiariki   
 **Les activités**:   
-**Les dépenses**: 100 €   
+**Les dépenses**: Hébergement 100 €   
 
 ## Jour 18: Tikehau Tahiti (08/05/2024)
 
