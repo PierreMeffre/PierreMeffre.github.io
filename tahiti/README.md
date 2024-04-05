@@ -6,179 +6,142 @@
 
 Tarif: 205 200 XPF ( ~ 1 720 €) pour 2 adultes et un enfant de 8 ans
 
-## Argent
-
-Nous avons ouvert un compte [wise](https://www.wise.com) pour effectuer les virements vers un/des comptes Polynesiens.   
-Les frais appliqués sont faibles, et les transferts se font en Euro (SEPA COM Pacifique).   
-La banque qui recevra le virement appliquera des frais (min 2450 xpf pour la Socredo!).   
-
 ## Jour 0: Le trajet allée
 
-Long périple depuis Nice... plus de 24h de trajet, avec stop à Paris, Los Angeles et enfin Tahiti
+Départ samedi 20 avril 2024 à 14h35 à Nice Terminal 2 - Vol effectué par AMELIA INTERNATIONAL, AF7307 (A320) 1h35 de vol   
+Arrivée à Paris CDG à 16h10  (3h15 de correspondance)   
+Départ Paris CDG à 19h25 - AF026 Airbus A350-900 - 22h05 de vol avec 2h25 d'escale à Los Angeles   
+Arrivée à 5h30 le 21 avril 2024 (17h30 en Métropole)
 
 ## Jour 1: Arrivée à Faa'a (21/04/2024)
 
-Notre vol arrive tôt... 5h30   
-On loue un véhicule chez [Eco-Car](https://www.ecocar-tahiti.com/)  - 6 jours pour 264 €   
-**Le transport**: Voiture loc   
+Location véhicule chez [Eco-Car](https://www.ecocar-tahiti.com/)  - 6 jours pour 264 €   
+**Le transport**: Voiture loc récupération à l'agence à 7h30 - L’agence ecocar se situe en face de l’aéroport de tahiti, coté montagne, à environ 200 mètres et 2 minutes à pied.   
+Les véhicules sont assurés dans les mêmes conditions pour circuler sur l`ile de moorea. les conditions d’assistance sont différentes de tahiti, compte tenu de la distance et de l`absence de service d`intervention à moorea.   
+Pour la restitution du véhicule, faire le plein dans une station de moins de 10 km de l'agence le jour même (ticket du plein à présenter) 
+ALLER RECUPERER LES BILLETS BATEAU POUR MOOREA : traversée Tahiti-Moorea le 24 avril matin / retour Moorea- Tahiti le 27 avril 2024 première heure car vol à 10h05 pour Huahine
 **L'hébergement**: U'upa Lodge - Alexis LEGER ( What's app + 689 89 57 48 27 ) 10 000 xpf/nuit + 4 000 xpf Ménage   
-**Les activités**: 
- * Récup vehicule location 
- * Marché de Papeete (le dimanche matin avant 9h)
- * Recup logement
- * !petit bain dans le logon 
- * Repas dans un snack
- * Courses alimentaires
-**Les dépenses**:   Auto = 264 € + Hébergement 83 €   
+**Les dépenses**:   Auto = 264 €  Réglé   
+                    Hébergement 34.000 xpf (10.000 x 3 nuits + 4000 ménage) - Acompte versé 17.000xpf (143€) - **Reste à payer 17.000 xpf**
 
 ## Jour 2: Tahiti - (22/04/2024)
 
-Découverte de l'ile ITI et NUI   
 **Le transport**: Voiture    
 **L'hébergement**: U'upa Lodge   
-**Les activités**: Surf à Teahupoo, Mont Aorai   
-**Les dépenses**:   Hébergement 83 €   
 
 ## Jour 3: Tahiti - (23/04/2024)
 
-Découverte de l'ile ITI et NUI   
 **Le transport**: Voiture   
-**L'hébergement**: U'upa Lodge   
-**Les activités**: Cascades de Faarumai   
-**Les dépenses**:  Hébergement 83 € + Ménage 35 €   
+**L'hébergement**: U'upa Lodge    
 
 ## Jour 4: Moorea (24/04/2024)
 
-Visite ile   
-Trajet bateau avec pack Famille A/R [AREMITI](https://www.aremiti.pf/packs-selection)   
-**Le transport**: Bateau   
-**L'hébergement**: SUNSETVIEW à Haapiti - Booking 364 € payable par virement ultérieurement [BOOKING](https://www.booking.com/hotel/pf/sunset-view-studio-private-beach-amazing-swim.fr.html)   
-**Les activités**:   
-**Les dépenses**:   bateau A/R ~ 150 € + Hébergement 121 €   
+**Le transport**: Bateau + Voiture  
+**L'hébergement**: SUNSETVIEW à Haapiti - Yves et Marie FAGON (Téléphone +689 87 79 84 04) Booking 364 € [BOOKING](https://www.booking.com/hotel/pf/sunset-view-studio-private-beach-amazing-swim.fr.html)   
+**Les dépenses**:   bateau A/R ~ 15.000 xpf (125€) à acheter le 21 avril  
+                    + Hébergement 364 € virment fait le 04/04/2024  
 
 ## Jour 5: Moorea (25/24/2024)
-**Le transport**:  
-**L'hébergement**:   
-**Les activités**:   
-**Les dépenses**: Hébergement 121 €   
+**Le transport**: voiture 
+**L'hébergement**:SUNSETVIEW à Haapiti    
 
 ## Jour 6: Moorea (26/04/2024)
 
-**Le transport**:   
-**L'hébergement**:   
-**Les activités**:   
-**Les dépenses**: Hébergement 121 €   
+**Le transport**: voiture   
+**L'hébergement**:SUNSETVIEW à Haapiti    
 
 ## Jour 7: Huahine (27/04/2024)
 
-Depart de Moorea vers Huahine via Papeete (depart 10h05)   
+Depart de Moorea vers Huahine via Papeete (depart 10h05) vol VT310
 Arrivée Huahine à 10h45
-Logement Chez Guynette pension à Fare - chezguynettehuahine@gmail.com - 63 € pour 3 personnes / nuit. Arrhes 1 nuit.   
+Logement Chez Guynette pension à Fare - chezguynettehuahine@gmail.com -téléphone : + (689) 40 68 83 75- 7.500 xpf (63 €)  pour 3 personnes / nuit.  
 
 **Le transport**:  Voiture + Bateau + Vol VT310 -    
 **L'hébergement**: Chez Guynette    
-**Les activités**:   
-**Les dépenses**: Hébergement 63 €   
+**Les dépenses**: Hébergement 22.500 € (189€) pour 3 nuits - Acompte de 7.500 xpf - **Reste à payer 15.000 xcp**  
 
 ## Jour 8: Huahine (28/04/204)
 
-**Le transport**:  
-**L'hébergement**:    
-**Les activités**:   
-**Les dépenses**: Hébergement 63 €   
+**Le transport**:  ?
+**L'hébergement**: chez Guynette   
 
 ## Jour 9: Huahine (29/04/2024)
 
-**Le transport**:    
-**L'hébergement**:   
-**Les activités**:   
-**Les dépenses**: Hébergement 63 €   
+**Le transport**:  ?  
+**L'hébergement**: Chez Guynette  
 
 ## Jour 10: Raiatea (30/04/2024)
 
-Avion depart 7h40, arrivée 8h00 à Raiatea
-Logement apprt à Uturoa - +68987286933  - via Booking - 225 € pour 2 nuits - ohanalocation@gmail.com - à regler par virement ou sur place
-Location voiture avec logement - 42 € par jour - Transferts aeroport compris
+Avion depart 7h40, arrivée 8h00 à Raiatea - Vol VT338
+Logement apprt à Uturoa - +68987286933  - via Booking - 26.732 xpf (225 €) pour 2 nuits - ohanalocation@gmail.com -
+Location voiture avec logement - 5.000 xpf (42 €) par jour soit 15.000 xpf pour 3 jours- Transferts aeroport compris
 
-**Le transport**: Vol VT338   
+**Le transport**: Vol VT338 + voiture  
 **L'hébergement**: Ohana Location à Uturoa      
-**Les activités**:   
-**Les dépenses**: Hébergement 112.5 € + Loc voiture 42 €   
+**Les dépenses**: Hébergement 26.732 xpf + Loc voiture 15.000 xpf = 41.732 xpf - Virement fait le 04/04/2024   
 
 ## Jour 11: Raiatea (01/05/2024)
 
-**Le transport**:    
-**L'hébergement**: Ohana Location à Uturoa   
-**Les activités**:   
-**Les dépenses**: Hébergement 112.5 €    
+**Le transport**: voiture   
+**L'hébergement**: Ohana Location à Uturoa     
 
 ## Jour 12: Raiatea Bora Bora (02/05/2024)
 
-Journéee sur RAIATEA puis soirée    
-Avion depart à 17h50 arrivée à 18h10 à BOB
-Logement Sunset Hill Lodge - Appart Moana 3 - 367,50 € pour 2 nuits. - sunset.hill.lodge@mail.pf - Payé CB le 21/01   
+Journée sur RAIATEA puis soirée    
+Avion depart à 17h50 arrivée à 18h10 à BOB puis navette gratuite de 20 min direction VAITAPE. Voiture avec hotesse qui nous attendra pour nous mener au logement (Tél. + 689 87 79 26 48 ou 89 50 21 72)
+Logement Sunset Hill Lodge BP 58 Vaitape à Bora Bora - Appart Moana 3 - tarif : 43 854 xpf (367,50 €) pour 2 nuits - tèl : +689 87792648 - sunset.hill.lodge@mail.pf - Payé CB le 21/01 - numéro de confirmation : 3727738638803.
+Wi-Fi pwd: villamoana57
 
-**Le transport**:  Vol VT468   
+**Le transport**:  voiture + Vol VT468   
 **L'hébergement**: Moana3 Sunset Hill Lodge   
-**Les activités**:   
-**Les dépenses**: Hébergement 183,75 €   
+**Les dépenses**: Hébergement 43 854 xpf (367,50 €) pour 2 nuits  
 
 ## Jour 13: Bora Bora (03/05/2024)
 
-**Le transport**:    
-**L'hébergement**: Moana3 Sunset Hill Lodge
-**Les activités**:   
-**Les dépenses**:Hébergement 183,75 €   
+**Le transport**: ?   
+**L'hébergement**: Moana3 Sunset Hill Lodge 
 
 ## Jour 14: Bora Bora / Tikehau (04/05/2024)
-
-Depart de BOB à 10h45 Arrivée à TIH 12h50 (Escale Technique Rangiroa)   
+Hotesse qui nous dépose à la navette
+Depart de BOB à 10h45 Arrivée à TIH 12h50 (Escale Technique Rangiroa) - Récupération à l'aeroport -
+Logement TIKEHAU vaikihei one - leetahiariki@mail.pf - What's app +68 98 773 53 14 - 48.000 xpf (400€) 12.000xpf par nuit - Payé le 09 janvier 2024.  
+Pret de vélo
 **Le transport**: Vol VT699   
-**L'hébergement**: Chez Tahiariki, contacté par What's app +68 98 773 53 14 pour 100 €/nuit (payé par virement).  
-**Les activités**:   
-**Les dépenses**: Hébergement 100 €     
+**L'hébergement**: Chez Tahiariki - TIKEHAU vaikihei one   
+**Les dépenses**: 48.000 xpf (400€) pour 4 nuits    
 
 ## Jour 15: Tikehau (05/05/2024)
 
-**Le transport**:    
-**L'hébergement**: Chez Tahiariki   
-**Les activités**:   
-**Les dépenses**: Hébergement 100 €
+**Le transport**: ?   
+**L'hébergement**: Chez Tahiariki - TIKEHAU vaikihei one    
 
 ## Jour 16: Tikehau (06/05/2024)
 
-**Le transport**:   
-**L'hébergement**: Chez Tahiariki   
-**Les activités**:   
-**Les dépenses**: Hébergement 100 €   
+**Le transport**: ?  
+**L'hébergement**: Chez Tahiariki - TIKEHAU vaikihei one 
 
 ## Jour 17: Tikehau (07/05/2024)
 
-**Le transport**:   
-**L'hébergement**: Chez Tahiariki   
-**Les activités**:   
-**Les dépenses**: Hébergement 100 €   
+**Le transport**: ?  
+**L'hébergement**: Chez Tahiariki - TIKEHAU vaikihei one   
 
 ## Jour 18: Tikehau Tahiti (08/05/2024)
 
-Vol de TIH à 12h00 à PPT à 12h55   
+Vol de TIH à 12h00 à PPT à 12h55
+On vient nous cherher à l'aéroport (faire message à l'hote)  
+Logement pour 2 nuits au MANAEVA L6 - Cité de l'air FAAA Quartier PATAHUE - tèl : +689 87 29 19 58 (reservation booking annulable jusqu'au 6 mai) - Tarif 27.900 xpf (235€) - **Reste à régler 27.900 xpf**
 **Le transport**: Vol VT653   
-**L'hébergement**:   
-**Les activités**:   
-**Les dépenses**:   
+**L'hébergement**: MANAEVA L6     
 
 ## Jour 19: Tahiti (09/05/2024)
-
-Cadeau au marché   
-**Le transport**:   
-**L'hébergement**:   
-**Les activités**:   
-**Les dépenses**:   
+  
+**Le transport**: ?  
+**L'hébergement**:  MANAEVA L6  
 
 ## Jour 20: FIN (10/05/2024)
 
-Retour en France, départ à 7h30   
-**Le transport**:  
-**L'hébergement**:   
-**Les activités**:   
-**Les dépenses**:   
+Retour en France, départ à 7h40 - FAAA - AF027 (Airbus A350-900) 21h05 de vol avec 2h15 d'escale à LOS ANGELES
+Arrivée à 16h45 le samedi 11/05/2024 à PARIS CDG   
+correspondance 4h50   
+Départ PARIS CDG à 21h35 - AF7314 (Airbus A321) 1h30 de vol   
+Arrivée à Nice à 23h05  
