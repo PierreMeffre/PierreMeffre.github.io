@@ -20,7 +20,7 @@ Location véhicule chez [Eco-Car](https://www.ecocar-tahiti.com/)  - 6 jours pou
 Les véhicules sont assurés dans les mêmes conditions pour circuler sur l'ile de moorea. les conditions d’assistance sont différentes de tahiti, compte tenu de la distance et de l'absence de service d`intervention à moorea.   
 Pour la restitution du véhicule, faire le plein dans une station de moins de 10 km de l'agence le jour même (ticket du plein à présenter) 
 ALLER RECUPERER LES BILLETS BATEAU POUR MOOREA : traversée Tahiti-Moorea le 24 avril matin / retour Moorea- Tahiti le 27 avril 2024 première heure car vol à 10h05 pour Huahine
-**L'hébergement**: U'upa Lodge - Alexis LEGER ( What's app + 689 89 57 48 27 ) 10 000 xpf/nuit + 4 000 xpf Ménage   
+**L'hébergement**: U'upa Lodge à partir de 15h - Alexis LEGER ( What's app + 689 89 57 48 27 ) 10 000 xpf/nuit + 4 000 xpf Ménage   
 **Les dépenses**:   Auto = 264 €  Réglé   
                     Hébergement 34.000 xpf (10.000 x 3 nuits + 4000 ménage) - Acompte versé 17.000xpf (143€) - **Reste à payer 17.000 xpf**
 
@@ -53,7 +53,7 @@ ALLER RECUPERER LES BILLETS BATEAU POUR MOOREA : traversée Tahiti-Moorea le 24 
 ## Jour 7: Huahine (27/04/2024)
 
 Depart de Moorea vers Huahine via Papeete (depart 10h05) vol VT310
-Arrivée Huahine à 10h45
+Arrivée Huahine à 10h45. Transfert via hez guynette **500 xpf**
 Logement Chez Guynette pension à Fare - chezguynettehuahine@gmail.com -téléphone : + (689) 40 68 83 75- 7.500 xpf (63 €)  pour 3 personnes / nuit.  
 
 **Le transport**:  Voiture + Bateau + Vol VT310 -    
