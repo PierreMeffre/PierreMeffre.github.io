@@ -17,7 +17,7 @@ Arrivée à 5h30 le 21 avril 2024 (17h30 en Métropole)
 
 Location véhicule chez [Eco-Car](https://www.ecocar-tahiti.com/)  - 6 jours pour 264 €   
 **Le transport**: Voiture loc récupération à l'agence à 7h30 - L’agence ecocar se situe en face de l’aéroport de tahiti, coté montagne, à environ 200 mètres et 2 minutes à pied.   
-Les véhicules sont assurés dans les mêmes conditions pour circuler sur l`ile de moorea. les conditions d’assistance sont différentes de tahiti, compte tenu de la distance et de l`absence de service d`intervention à moorea.   
+Les véhicules sont assurés dans les mêmes conditions pour circuler sur l'ile de moorea. les conditions d’assistance sont différentes de tahiti, compte tenu de la distance et de l'absence de service d`intervention à moorea.   
 Pour la restitution du véhicule, faire le plein dans une station de moins de 10 km de l'agence le jour même (ticket du plein à présenter) 
 ALLER RECUPERER LES BILLETS BATEAU POUR MOOREA : traversée Tahiti-Moorea le 24 avril matin / retour Moorea- Tahiti le 27 avril 2024 première heure car vol à 10h05 pour Huahine
 **L'hébergement**: U'upa Lodge - Alexis LEGER ( What's app + 689 89 57 48 27 ) 10 000 xpf/nuit + 4 000 xpf Ménage   
